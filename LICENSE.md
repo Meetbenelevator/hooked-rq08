@@ -1,4 +1,4 @@
-#  
+#  hooked stealth Script is the best hooked Script, featuring anti-ban and speed. Safe and powerful for all your needs.
 
 
 
